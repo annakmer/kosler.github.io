@@ -19,3 +19,12 @@ Al Jazeera, published on October 6, 2021
 Ylva Schwenke was 14 when she survived the deadliest attack in Norway since WWII.
 
 ![](https://www.aljazeera.com/wp-content/uploads/2021/10/2021-10-05T122251Z_560423960_RC2O3Q95A2W2_RTRMADP_3_CZECH-ELECTION-BUDGET.jpg?resize=770%2C513)
+
+
+
+Al Jazeera, published on October 13, 2021  
+###  [Ahead of election, Pandora Papers cast shadow over Czech PM](https://www.aljazeera.com/news/2021/10/6/ahead-of-election-pandora-papers-cast-shadow-over-czech-pm)
+
+Ylva Schwenke was 14 when she survived the deadliest attack in Norway since WWII.
+
+![](https://www.aljazeera.com/wp-content/uploads/2021/10/2021-10-05T122251Z_560423960_RC2O3Q95A2W2_RTRMADP_3_CZECH-ELECTION-BUDGET.jpg?resize=770%2C513)
