@@ -2,7 +2,6 @@
 ### Markdown
 
 
-```markdown
 Syntax highlighted code block
 
 # Header 1
