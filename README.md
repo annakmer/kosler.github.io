@@ -1,6 +1,6 @@
 ## Portfolio of published work
 
-October 15, 2021  
+Vice World News, published on October 15, 2021  
 ###  [‘A Far-Right Terrorist Shot Me Four Times, But I Felt No Hate When I Testified Against Him’](https://www.vice.com/en/article/3aqxeb/a-far-right-terrorist-shot-me-four-times-but-i-felt-no-hate-when-i-testified-against-him)
 
 Ylva Schwenke was 14 when she survived the deadliest attack in Norway since WWII.
